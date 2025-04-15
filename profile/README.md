@@ -2,7 +2,7 @@
 
 Are you ready to experience an **epic** and **unblocked** racing adventure? Look no further than **Highway Traffic Unblocked**, where you can enjoy **lightning-fast** speed, **insane** action, and **deadly** challenges as you race through endless highways without any restrictions. 
 
-## <a href="https://izigames.net/">👉 Play Highway Traffic Unblocked 👈</a>
+## <a href="https://izigames.net/highway-traffic/">👉 Play Highway Traffic Unblocked 👈</a>
 
 ### 🚗 **Ultimate Highway Racing Experience**
 
